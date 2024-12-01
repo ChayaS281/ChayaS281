@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chaya
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...hh
 - 📫 How to reach me ...@suhani2854@gmail.com
 
 
